@@ -1,6 +1,6 @@
 AuroraRift 🌌
 
-🚀 Next-Gen AI-Powered Music, Video, and NFT Platform
+🚀 Next-Gen AI-Powered Creativity
 
 📌 Overview
 
